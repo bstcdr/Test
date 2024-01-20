@@ -7,3 +7,5 @@ dfdssssssssssssss
 
 dfdssssssssssssssds
 fdgfdgggggggggggggggggggggggggggggggggggdsfdsffds
+
+совершенно с этим согласен
